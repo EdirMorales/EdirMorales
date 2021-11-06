@@ -4,6 +4,6 @@
 
 🌱 I’m currently learning home assistant XD
 
-💞️ I’m looking to collaborate on a day of beer brewing
+💞️ I’m looking to collaborate on a beer brewing day
 
 📫 edir.morales@live.cl
